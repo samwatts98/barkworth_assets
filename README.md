@@ -1,2 +1,1 @@
-# barkworth_assets
-Assets for Barkworth Group e-mail signatures
+# I drink wee wee
